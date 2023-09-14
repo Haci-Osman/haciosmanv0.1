@@ -1,2 +1,4 @@
-# haciosmanv0.1
-Hacı Osman Eğitim Seti v0.1
+discord.gg/haciosman
+t.me/haciosman
+instagram.com/haciosmandc
+tiktok.com/@haciosmandc
